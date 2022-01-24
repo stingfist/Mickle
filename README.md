@@ -1,2 +1,2 @@
 # Mickle
-Shining stars 
+Shining stars in the sky 
